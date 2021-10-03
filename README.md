@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 연락 방법 ...
 Hellow
-- I'm interted in money.
-- I want to know everything.
+- comuter, listen music, movies.
+- I'm interested in knowldege(ETC.)
 - I'm not yet ready to perform anytings. Teach me so many Things.
 - yaho6582@gmail.com
 <!---
